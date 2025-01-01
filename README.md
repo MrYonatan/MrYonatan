@@ -25,7 +25,7 @@ A passionate software engineering student looking to make a mark in the tech wor
 ---
 
 ### 📫 Let's Connect! 
-- 📧 Email: yonatanmekonnen72@gmail.com
+- 📧 Email: yonatanassefa60@gmail.com
 
 ---
 
